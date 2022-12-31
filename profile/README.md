@@ -22,6 +22,6 @@ If you have any questions or would like to get involved with Matsuricon, please 
 
 ## Mission Statement
 
-Matsuricon’s mission is to promote the cultural awareness of japanese pop-culture through related events, special guest speakers and cultural presentations.
+Matsuricon’s mission is to promote the cultural awareness of Japanese pop-culture through related events, special guest speakers and cultural presentations.
 
 We look forward to seeing you at Matsuricon!
